@@ -1,6 +1,6 @@
 #"Permission To Come Aboard Cap'ain"
 
-A presentation by @kae76 Karen Leech (twitter @kaelle76) @waako Tom Bamford (twitter @waako) about the onboardinf process. 
+A presentation by Kae76 Karen Leech (twitter @kaelle76) Waako Tom Bamford (twitter @waako) about the onboardinf process. 
 
 https://camp2012.nwdrupal.org.uk/sessions/permission-come-aboard-capain
 
